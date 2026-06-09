@@ -1,4 +1,4 @@
-# 
+# Atualizado flash loan arbitrage bot scripts para Mac OS | Código aberto flash loan arbitrage bot scripts para PC Windows. Com notificações de alerta e extração MEV — otimizado para máximo desempeño en cada plataforma.
 
 
 
